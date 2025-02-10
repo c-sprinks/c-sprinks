@@ -24,7 +24,6 @@ Learning: Life's a classroom, and I'm always listning .
 Connect with Sprinkles:
 Linkedin - www.linkedin.com/in/chris-sprinkles-547680213
 X - https://x.com/ChrisDSprinkles
-Emial - csprinkles@protonmial.com
 Fun Fact
 I've built houses and building, but now I'm building networks. Both are about creating foundations, just in different worlds.
 
