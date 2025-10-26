@@ -1,5 +1,5 @@
 Hey, I'm Sprinkles! 
-Welcome to my corner of the internet where I'm juggling life, love, and learning new tech tricks.
+Welcome to my corner of the internet where I'm juggling life, family, and learning new tech tricks.
 
 About Me
 Husband, Father, Son: My heart's at home with my family, but my brain's always wandering.
