@@ -10,7 +10,7 @@ My Journey to IT
 Switching Gears: Sold my Sub-Contracting business to my partner. Now I'm diving headfirst into IT, transforming my passion into my profession.
 
 What I'm Do Now 
-Studying for the trifecta CompTIA A+, CompTIA Network+ and CompTIA Security+.
+Studying for the future CompTIA Network+ and CompTIA Security+.
 
 Interests
 Security, Networking,SDR,AI,Ham Radio etc. 
